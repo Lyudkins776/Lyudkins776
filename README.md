@@ -4,3 +4,4 @@
 - 👨‍💻 I’m looking to collaborate on projects that help me grow and learn more every day  
 - 📫 How to reach me: l.vargiu.git@gmail.com 
 - ⚡ Fun fact: I’m an Apple OS lover who gets hyped over new features like a kid in a candy store 🍬🖥️  
+- 🇮🇹
